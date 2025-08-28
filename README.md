@@ -1,7 +1,7 @@
 
 
 
-**You can view on drive** : https://drive.google.com/drive/folders/1dTCALQX9A6vm2S21Sa7qUwlQ-MB-md26?usp=sharing   <br>
+**You can view on drive also** : https://drive.google.com/drive/folders/1dTCALQX9A6vm2S21Sa7qUwlQ-MB-md26?usp=sharing   <br>
 
 
 📌 What I Do
